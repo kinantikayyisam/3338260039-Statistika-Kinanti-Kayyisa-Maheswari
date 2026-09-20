@@ -1,1 +1,0 @@
-# 3338260039-Statistika-Kinanti-Kayyisa-Maheswari
